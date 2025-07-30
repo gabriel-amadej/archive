@@ -1,3 +1,5 @@
+Gab On Youth Transition & Her Own Regrets
+
 Posted November 21st, 2021 --- Retrieved July 30th, 2025
 
 Live Link 1 https://x.com/atheopagan/status/1462346298603065348
