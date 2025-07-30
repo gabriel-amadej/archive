@@ -10,7 +10,7 @@ stop calling a primary teenage audience 'children'
 
 the earlier you start hormones, the better the result. waiting until some person has a N arbitrary % more agency is not a neutral option, it's usually a harm. they're less likely to regret it than otherwise. this guy is a hero 
 
-<img src="https://ibb.co/8LWfH4GG" alt="estradiol packaging quote tweet screenshot">
+<img src="https://i.ibb.co/xtpBN8ww/IMG-1430.png" alt="estradiol packaging quote tweet screenshot">
 
 https://archive.is/iXuUX
 
