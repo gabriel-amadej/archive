@@ -1,4 +1,4 @@
-Gab On Structuralism VS Agency 
+Gab On Structuralism VS Agency (Satire)
 
 Posted May 5th, 2025 --- Retrieved August 10th, 2025 
 
