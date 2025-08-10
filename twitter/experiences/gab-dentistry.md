@@ -17,3 +17,25 @@ Live Link https://x.com/atheopagan/status/1462874864163999746
 Archive Link https://archive.is/teAoi
 
 mine was just a wisdom tooth that had hollowed out. no toothpain at all, but i did have an annoying prescription to not exercise for 7 days 😤
+
+
+Posted August 6th, 2023 --- Retrieved August 10th, 2025
+
+Live Link 1 https://x.com/atheopagan/status/1688052767858835457
+
+Live Link 2 https://threadreaderapp.com/thread/1688052767858835457.html
+
+Archive Link https://archive.is/hp85c
+
+if my parents drank herbal tea instead of soda pop, i would still have perfect teeth. fortunately i haven't touched soft drinks in the last half-decade. 
+
+
+Posted March 22nd, 2022 --- Retrieved August 10th, 2025 
+
+Live Link 1 https://x.com/atheopagan/status/1508765925520125957
+
+Live Link 2 https://threadreaderapp.com/thread/1508765925520125957.html
+
+Archive Link https://archive.is/75nni 
+
+can you believe that i drank fructose loaded soda for the first 23 years of my life? my teeth can certainly believe it.
