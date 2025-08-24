@@ -3,6 +3,8 @@
 [LIVE LINK](https://pastebin.com/VR9t7wA8) --/////-- 
 [ARCHIVE LINK](https://archive.ph/d8I6z) 
 
+.
+
 **March 25th, 2015** 
 
 I've tried to fight pessimism
