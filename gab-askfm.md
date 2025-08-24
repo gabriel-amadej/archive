@@ -128,7 +128,9 @@ all of my hopes and dreamed now drowned by confusion~
 
 it all amounted to nothing~
 
-i am nothing~there was no attempt at communism or equality in the USSR~
+i am nothing~
+
+there was no attempt at communism or equality in the USSR~
 
 i see it now~
 
