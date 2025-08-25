@@ -46,6 +46,9 @@ can only be met by involuntary circumstance. The aromantic person is barely exce
 
 .
 
+[LIVE LINK](https://mond.how/topics/jk3i91irhdetshr) --/////-- 
+[ARCHIVE LINK](https://archive.ph/EEMnW)
+
 > get back on this bitch
 
 Never.
