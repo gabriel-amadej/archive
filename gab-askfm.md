@@ -105,7 +105,7 @@ That Canada fucking sucks to be honest.
 
 [ARCHIVE LINK](https://web.archive.org/web/20241126191003/https://ask.fm/GabrielAmadej/answers/136285489114)
 
-**June 5th, 2016**
+#### June 5th, 2016
 
 > If you had to live in one of the following social orders, from best to worst where'd you prefer to live and why? A. Bakunite
 > Collectivism B. Geolibertarianism C. Anarcho-Communism
