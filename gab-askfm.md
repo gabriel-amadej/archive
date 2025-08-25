@@ -120,7 +120,7 @@ It's a toss-up between Cody Wilson, Zizek, or Rothbard.
 
 > Were you aware that there was no attempt at Communism or equality in the USSR?
 
-**May 08, 2016** 
+**May 8th, 2016** 
 
 you just shattered my worldview~
 
