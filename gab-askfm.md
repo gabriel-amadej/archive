@@ -20,8 +20,7 @@ Make total destroy
 
 > What movie can you watch over and over again?
 
-The Dark Knight. I'm not even kidding. I actually don't really like movies. This is the one movie that was not in any way 
-underrated.
+The Dark Knight. I'm not even kidding. I actually don't really like movies. This is the one movie that was not in any way underrated.
 
 > What is the longest you've ever gone without any sleep?
 
