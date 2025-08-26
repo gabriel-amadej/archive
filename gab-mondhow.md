@@ -14,11 +14,7 @@ Such that, although sex is strictly healthy in at least the short-term, it is no
 
 .
 
-> Since you hold the position that content warnings are arbitrary, and because of that anything could be made a content warning, therefore you don't have a moral obligation to
-> use them, would you say that, e.g. sending unsolicited gore to people in private message channels has the same moral value as sending them random gibberish, e.g. it's
-> morally neutral, since voluntary looking at either gore or random gibberish would be okay? So never mind anyone that could get triggered or traumatized by it, since they
-> implicitly agree to being shown arbitrary things on the Internet, so in a sense it would be like clicking a goatse link, the only difference being that there is a
-> considerable delay between the action (e.g. joining a Discord guild with DMs allowed from non-friends in that guild) and the result (the unsolicited gore)?
+> Since you hold the position that content warnings are arbitrary, and because of that anything could be made a content warning, therefore you don't have a moral obligation to use them, would you say that, e.g. sending unsolicited gore to people in private message channels has the same moral value as sending them random gibberish, e.g. it's morally neutral, since voluntary looking at either gore or random gibberish would be okay? So never mind anyone that could get triggered or traumatized by it, since they implicitly agree to being shown arbitrary things on the Internet, so in a sense it would be like clicking a goatse link, the only difference being that there is a considerable delay between the action (e.g. joining a Discord guild with DMs allowed from non-friends in that guild) and the result (the unsolicited gore)?
 
 More specifically, my position is that trauma is complex enough that people can be triggered by anything-ever, and at regularly unpredictable rates. As a result, we don't 
 have a collective obligation to rearrange our communications infrastructure around the possibility of being triggered. A person with an eating disorder could be triggered by 
