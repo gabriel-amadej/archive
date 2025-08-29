@@ -1,9 +1,9 @@
-#### GAB'S FOOD SHOPPING LIST DATED NOVEMBER 21ST, 2013
+#### GAB'S HEALTHMAXXED VEGAN DIET IN NOVEMBER 2013
 
 [LIVE LINK](https://pastebin.com/xPybwrg3) --/////-- 
 [ARCHIVE LINK](https://archive.ph/sQXkW) 
 
-.
+**November 21st, 2013**
 
 _assorted_
 
