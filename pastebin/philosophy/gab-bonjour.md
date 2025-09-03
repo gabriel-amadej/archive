@@ -1,5 +1,9 @@
 #### GAB'S NOTES ON BONJOUR'S "EPISTEMIC JUSTIFICATION" UP TO CHAPTER 4-2
 
+**February 15th, 2013**
+
+.
+
 **Notes on Epistemic Justificaiton from Bonjour**
 
 #### CH. 1-4.
