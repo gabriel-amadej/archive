@@ -1,8 +1,8 @@
-#### GAB'S NOTES ON BONJOUR'S "EPISTEMIC JUSTIFICATION" UP TO CHAPTER 4.2
+#### GAB'S NOTES ON BONJOUR'S "EPISTEMIC JUSTIFICATION" UP TO CHAPTER 4-2
 
 **Notes on Epistemic Justificaiton from Bonjour**
 
-#### CH. 1.4.
+#### CH. 1-4.
 
 ~What confers a held belief epistemic justification is when the subject has an internally accessible reason for thinking
 that it is likely to be true.
@@ -44,7 +44,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH. 1.5.
+#### CH. 1-5.
 
 ~One conception of knowledge is to say that the degree of justification, that is, the internally accessible probability that the belief is likely to be true is something greater than 0.51 out of 1. This is the *weak* conception of knowledge.
 
@@ -77,7 +77,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH. 2.4.
+#### CH. 2-4.
 
 ~Here, we consider two primary objections to internalism:
 
@@ -87,7 +87,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH 2.5.
+#### CH 2-5.
 
 ~Internalism and externalism may not be mutually exclusive.
 
@@ -99,7 +99,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH. 2.6.
+#### CH. 2-6.
 
 ~Epistemic justification is fundamentally about whether we have any good reasons to think that any of our beiefs about the world are true.
 
@@ -133,7 +133,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH. 3.1.
+#### CH. 3-1.
 
 ~Only hope to respond to circularity objection is that proponents assume beliefs are justified in an assymetrical, linear way- but really, they might be nonlinear and holistic; all standing in relation giving mutual support.
 
@@ -191,7 +191,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH 3.2.
+#### CH 3-2.
 
 ~What seems left is for the coherentist to give argument, from empirical premise saying that belief system is coherent, to conclusion that component beliefs of system is likely, to appropriate degree, to be true. Such argument would have to be a priori in character, any further empirical ingredient would on a coherentist view be justified by appeal to coherence.
 
@@ -199,7 +199,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH 3.3.
+#### CH 3-3.
 
 ~First, it is implausible to suppose that the form of skeptiicsm implied in Bonjour's previous solution is something that just has to be believed with, and, moreover, there may not be a solution compatible with any solution of the problem of accessing one's own beliefs that is compatible with coherentism.
 
@@ -215,7 +215,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH. 4.1.
+#### CH. 4-1.
 
 ~The natural way to answer the dilemma noted in CH 1. is to appeal to the conscious experience involved in having the first-order belief or thought in question. This has to be presented in the right way.
 
@@ -237,7 +237,7 @@ which is quite a dogmatic and obviously insufficient view.
 
 .
 
-#### CH 4.2.
+#### CH 4-2.
 
 ~Alternative to the previous view of intrinsic mental constituent is "higher-order thought" theory of consciousness.
 
