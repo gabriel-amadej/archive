@@ -1,0 +1,21 @@
+#### "I WISH I COULD HIDE FROM THIS GRIM PICTURE INSIDE MY HEAD"
+
+#### (GAB DESCRIBES HER DEPRESSION AT AGE 17)
+
+[LIVE LINK 1](https://pastebin.com/cKEqScv6) --/////-- 
+[LIVE LINK 2](https://pastebin.com/VHCGzrsX) --/////-- 
+[ARCHIVE LINK 1](https://archive.ph/t8NTx) --/////-- 
+[ARCHIVE LINK 2](https://archive.ph/P3pXD) 
+
+**November 5th-9th, 2012**
+
+.
+
+I think that when we choose to subsist in this corporeal form that we are just exercising our vanity. That our future is so important that we should endure through misery; the cost, the weight of our suffering be damned. It is this egocentric attitude that we all implicitly share that we should single out as our enemy, that we should suppress and gain some kind of mastery over it. It's this failure to reign in the ego that I think makes it so hard for me to take any solace in interacting with people. If I have to burn through the nests of their inner-locked complexes and desires, why should I bother? It bleeds through in every little interaction; people emotionally bully and manipulate each other without even realizing it. I say this with no illusions of superiority, but as a person who can't help but be aware of these psychological defects, I struggle to engage my sympathies in the face of it.
+
+I sometimes wake up and think, "Fuck, I am alive." I open my eyes, stare at the coating on my ceiling, and as I arch my back to sit up I can already feel stirring the currents of misery that I have become accustomed to being locked in rhythm with. I often just cry right then and there until I can gather up the energy to get out of bed. I don't exactly have repeating thought cycles or otherwise a dedicated conceptual pattern that perpetuates my misery, I just have a bundle of depressive and hateful attitudes that I can't control. I don't think I would want to control them anyway, the free-run of emotions is a liberating and character building experience.
+
+The possessive attitudes that people seem oblivious to or O.K. with quite frankly make me feel sick. I have never understood the excessive need that people feel to control their environment, people, or even themselves (at a certain extent). I have this stigma towards authoritarian psychological states, to such an end where I try not to come off as controlling and I intentionally refuse to manufacture things in my immediate vicinity. In recognizing this trend in people, I thus become subject to a self-enforcing scheme that traps my reflexive attitudes into a pattern of it's own design. A manifestation of perpetual anxiety and discomfort, where I hate humanity in ever increasing degrees with every single second I am spared a blissful end.If I am to exercise delusion, then I would think of myself as a candle, submerged in flame, that is lighting the darkness as I walk this mortal road. Yet even though such a thought can seem comforting on its surface, it is in fact a wretched subterfuge of the highest caliber: in bringing light to the darkness, I must internalize that darkness; to be shaped and manifest within, to become personified. What then emerges as a result will depend on my character, but I seemed to have maintained a moral nature in the process.
+
+In a run against the stereotype, I don't feel particularly conflicted and neither do I feel confused. I just seem to have collected some mental baggage whilst on my way, all of it carrying its own weight with their intrinsic utility, but they do weigh heavily on my mental state. I am just in a state of constant anxiety and sadness. I don't know what to do about and I can't seem to escape this cage I have locked myself in. And inline with the fashion: I am not sure I even want to. So long as I am functional, I don't really care if I feel horrible all the time. What is at issue is that my state of mind is severely impacting my ability to perform the intellectual tasks that I want to, and the finesse in which I intake information is laughable.
+In essence, I am overburdened with my internal processing of world events and their underlying nature. And I don't think there is much hope that I can escape from this destructive pattern. Hopefully the end will be peaceful and I can finally phase into the mists of oblivion.
