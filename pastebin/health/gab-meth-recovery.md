@@ -35,7 +35,7 @@ vitamin d2
 
 regular exercise routine of any kind
 
----
+.
 
 [LIVE LINK](https://pastebin.com/pG43JLBL) --/////-- 
 [ARCHIVE LINK](https://archive.ph/TjcLt) 
