@@ -7,55 +7,55 @@
 
 --------------------------------------------------------
 
-Moral realism:
+#### Moral realism:
 
 Moral properties exist, and they exist objectively, and they are universal. Moral statements express propositions.
 
 .
 
-Moral anti-realism: 
+#### Moral anti-realism: 
 
 Moral properties do not exist, or they are subjective, or they are relative. Moral statements may or may not express propositions.
 
 ---
 
-Cogntivism:
+#### Cogntivism:
 
 Moral statements express propositions.
 
 .
 
-Non-cognitivism:
+#### Non-cognitivism:
 
 Moral statements do not express propositions.
 
 .
 
-Emotivisim:
+#### Emotivisim:
 
 Moral statements express emotions.
 
 .
 
-Prescriptivism:
+#### Prescriptivism:
 
 Moral statements express imperatives, or prescriptions. E.g. "murder is wrong" literally means "do not murder".
 
 .
 
-Expressivism/Quasi-realism:
+#### Expressivism/Quasi-realism:
 
 Moral statements are not descriptive or 'fact-saying'; they have no truth value.
 
 .
 
-Descriptive subjectivism:
+#### Descriptive subjectivism:
 
 Moral statements describe subjective attitudes. E.g. "X is wrong" means something like "I disapprove of X".
 
 ---
 
-Meta-ethcial 'objectivism':
+#### Meta-ethcial 'objectivism':
 
 Moral properties are properties of reality.
 
@@ -63,7 +63,7 @@ Moral properties are properties of reality.
 
 .
 
-Meta-ethical subjectivism:
+#### Meta-ethical subjectivism:
 
 Moral properites are properties of subjects.
 
@@ -71,7 +71,7 @@ Moral properites are properties of subjects.
 
 .
 
-Meta-ethical relativism:
+#### Meta-ethical relativism:
 
 Moral properties are properties of culture or society.
 
@@ -79,7 +79,7 @@ Moral properties are properties of culture or society.
 
 ---
 
-Error theory:
+#### Error theory:
 
 Moral properties do not exist.
 
@@ -87,7 +87,7 @@ Moral properties do not exist.
 
 .
 
-Moral nihilism:
+#### Moral nihilism:
 
 Nothing is morally wrong.
 
@@ -95,7 +95,7 @@ Nothing is morally wrong.
 
 .
 
-Ideal Observer Theory:
+#### Ideal Observer Theory:
 
 Moral properties are the properties of a hypothetical ideal observer. This ideal observer is unbiased and fully informed.
 
@@ -103,7 +103,7 @@ Moral properties are the properties of a hypothetical ideal observer. This ideal
 
 .
 
-Divine Command Theory:
+#### Divine Command Theory:
 
 Moral properties are properties of God's commands.
 
@@ -111,7 +111,7 @@ Moral properties are properties of God's commands.
 
 .
 
-Restricted Divine Command Theory:
+#### Restricted Divine Command Theory:
 
 Moral properties are properties of God (they make up God's nature); normative moral duties are realized by God's commands.
 
@@ -121,13 +121,13 @@ Moral properties are properties of God (they make up God's nature); normative mo
 
 .
 
-Divine Independence Theory:
+#### Divine Independence Theory:
 
 Moral properites are not divine properties, but God might remain as our primary source for moral knowledge.
 
 .
 
-Divine Will Theory:
+#### Divine Will Theory:
 
 Moral properties are properties of God's will.
 
@@ -135,18 +135,18 @@ Moral properties are properties of God's will.
 
 .
 
-Ethical non-naturalism:
+#### Ethical non-naturalism:
 
 Moral properties are not reducible to natural or divines properties.
 
 .
 
-Ethical naturalism:
+#### Ethical naturalism:
 
 Moral properties are reducible to natural properties. E.g.  goodness is really happiness.
 
 .
 
-Ethical divinitism/theism:
+#### Ethical divinitism/theism:
 
 Moral properties are reducible to divine properties. E.g.  goodness is really God's will.
