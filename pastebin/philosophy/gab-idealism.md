@@ -103,15 +103,15 @@ This is a positon that tries to formulate a more grounded idealism that contrast
 
 Pluralistic idealism generally holds that there are many minds underlying the existence of the observable world, who make possible the existence of the universe.
 
-~Leibniz' pluralistic idealism:
+_~Leibniz' pluralistic idealism:_
 
 There exist what we may call monads--substantive forms of being--that are the actual atoms of the universe, and who are entities capable of perception. They are individual, non-interactive, and each of them reflect the entire universe. These monads would be the center of substance. However, things like space are phenomenal in nature, and rely on the monads. The central monad is God, who harmonizes the relationship between external objects and the minds of monads.
 
-~Personalism:
+_~Personalism:_
 
 This holds that the minds underlying reality are persons. Reality is a society of people dependent on God.
 
-~McTaggard's variation:
+_~McTaggard's variation:_
 
 McTaggard argued that only minds exist, and we only relate to each other through love.
 
