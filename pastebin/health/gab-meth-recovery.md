@@ -3,7 +3,7 @@
 
 **December 19th, 2013**
 
-.
+---
 
 **plan to restore dopamine & seritonin production and whatnot:**
 
@@ -34,3 +34,34 @@ aripiprazole prescription _(partial dopamine agonist)_
 vitamin d2
 
 regular exercise routine of any kind
+
+---
+
+[LIVE LINK](https://pastebin.com/pG43JLBL) --/////-- 
+[ARCHIVE LINK](https://archive.ph/TjcLt) 
+
+**June 11th, 2014**
+
+---
+
+L-Phenylalanine
+
+vitamin b6 & vitamin b12
+
+l-tyrosine
+
+sam-e
+
+magnesium
+
+Acetyl-l-carnitine arginate
+
+flax seed oil
+
+5-htp
+
+vitamin d2
+
+l-theanine
+
+rhodiola
