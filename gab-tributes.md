@@ -16,11 +16,17 @@
 
 ---
 
-#### MEMES
+#### ASSETS
+
+<img width="128" height="128" alt="small gab square avatar" src="https://github.com/user-attachments/assets/e72b452a-8a72-4112-a6b2-20fef4a0446e" />
+
+<img width="561" height="542" alt="gab twitter circle avatar" src="https://github.com/user-attachments/assets/cb93c773-7316-4fb6-8149-22ae01923bf4" />
 
 <img width="256" height="542" alt="gab phone wallpaper" src="https://github.com/user-attachments/assets/42581d2d-47ab-40fe-afdd-741fe38411ab" /> 
 
-<img width="202" height="437" alt="posthuman manifesto" src="https://github.com/user-attachments/assets/97e009bb-b7b9-4860-b9dc-8122d9e0fbf1" />
+<img width="202" height="437" alt="with posthuman manifesto playing" src="https://github.com/user-attachments/assets/97e009bb-b7b9-4860-b9dc-8122d9e0fbf1" />
+
+#### MEMES
 
 <img width="635" height="404" alt="you watch the hood, i'll watch the skies" src="https://github.com/user-attachments/assets/50d511fe-f0fb-4a47-833b-25ff24b21bc3" /> 
 
