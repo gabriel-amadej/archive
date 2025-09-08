@@ -4,6 +4,12 @@
 
 [Tumblr Gab Shrine Page](https://ickalo.tumblr.com/gab)
 
+#### ARCHIVES
+
+[Atheopagan Gab Main Website](https://atheopagan.com/)
+
+["Instead Of A Thread" Google Doc](https://docs.google.com/document/d/17yqDgYUNsz9_o9p_7APbuPgpkXJgutNDXn6vPfK0_8s)
+
 #### PRODUCTS
 
 [Atheopagan Gab "Brand" Avatar Redbubble Product](https://www.redbubble.com/i/magnet/Atheopagan-Gab-Brand-Avatar-by-Obsquidian/172378310.TBCTK) 
