@@ -1,8 +1,8 @@
-#### Gab On Whataboutism 
+#### GAB ON WHATABOUTISM
 
-Posted On February 12th, 2022 
+Posted On February 12th, 2022
 
-Retrieved On August 10th, 2025 
+Retrieved On August 10th, 2025
 
 Live Link - https://x.com/atheopagan/status/1492644885945585667
 
