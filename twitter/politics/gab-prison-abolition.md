@@ -10,6 +10,8 @@ Live Link 2 - https://threadreaderapp.com/thread/1921386052285059388.html
 
 Archive Link - https://archive.is/b7f8u
 
+---
+
 “addendum: i was wrong, but i almost had a point” aside, this is richly illustrative of the sickening conceit looming behind lazy anti-abolitionism. prison abolitionists, in actual fact, have exhaustive and detailed responses to common concerns. so much so that it's almost boring to go through the motions, as we can cognitively model every possible conversation on the matter. you were confusing prison abolitionism *as such* with communists who pick up the label for 2 years in their teenage lives. more matured prison abolitionists get sick of their often essay-length responses predictably having no impact on the vengeful mobs. ('vengeful' no matter their proclaimed theoretical motivations, such as self-styled anti-retributivists): which, of course, reveals the personal vices of those who oppose prison abolitionism. 
 
 when it comes down to it, most people cruelly and animalistically want others to suffer, even when they reject retributive theories of just imprisonment, and that is a fatal flaw which is hard to dispel with the ample empirical and moral-dialogical evidence in our favour. 
