@@ -1,10 +1,14 @@
-Posted On May 11th, 2025 --- Retrieved August 4th, 2025 
+#### GAB LAYS OUT THE STEPS TOWARDS PRISON ABOLITION
 
-Live Link 1 https://x.com/atheopagan/status/1921386052285059388
+Posted On May 11th, 2025 
 
-Live Link 2 https://threadreaderapp.com/thread/1921386052285059388.html
+Retrieved On August 4th, 2025 
 
-Archive Link https://archive.is/b7f8u
+Live Link 1 - https://x.com/atheopagan/status/1921386052285059388
+
+Live Link 2 - https://threadreaderapp.com/thread/1921386052285059388.html
+
+Archive Link - https://archive.is/b7f8u
 
 “addendum: i was wrong, but i almost had a point” aside, this is richly illustrative of the sickening conceit looming behind lazy anti-abolitionism. prison abolitionists, in actual fact, have exhaustive and detailed responses to common concerns. so much so that it's almost boring to go through the motions, as we can cognitively model every possible conversation on the matter. you were confusing prison abolitionism *as such* with communists who pick up the label for 2 years in their teenage lives. more matured prison abolitionists get sick of their often essay-length responses predictably having no impact on the vengeful mobs. ('vengeful' no matter their proclaimed theoretical motivations, such as self-styled anti-retributivists): which, of course, reveals the personal vices of those who oppose prison abolitionism. 
 
