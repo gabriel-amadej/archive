@@ -1,12 +1,16 @@
-Gab On Youth Transition & Her Own Regrets
+#### Gab On Youth Transition & Her Own Regrets
 
-Posted November 21st, 2021 --- Retrieved July 30th, 2025
+Posted On November 21st, 2021
 
-Live Link 1 https://x.com/atheopagan/status/1462346298603065348
+Retrieved On July 30th, 2025
 
-Live Link 2 https://threadreaderapp.com/thread/1462346298603065348
+Live Link 1 - https://x.com/atheopagan/status/1462346298603065348
 
-Archive Link https://archive.is/TzIbC
+Live Link 2 - https://threadreaderapp.com/thread/1462346298603065348
+
+Archive Link - https://archive.is/TzIbC
+
+---
 
 stop calling a primary teenage audience 'children'
 
