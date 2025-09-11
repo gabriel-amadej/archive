@@ -102,6 +102,8 @@ Bash my head in to create a state of unconsciousness.
 
 That Canada fucking sucks to be honest.
 
+---
+
 [ARCHIVE LINK](https://web.archive.org/web/20241126191003/https://ask.fm/GabrielAmadej/answers/136285489114)
 
 #### June 5th, 2016
@@ -115,6 +117,8 @@ I strongly wish European anarchism stayed with Bakunite Collectivism and didn't 
 It's a toss-up between Cody Wilson, Zizek, or Rothbard.
 
 > Were you aware that there was no attempt at Communism or equality in the USSR?
+
+---
 
 **May 8th, 2016** 
 
@@ -132,17 +136,23 @@ i see it now~
 
 nill 
 
+---
+
 **April 6th, 2016**
 
 > What should/can we say to 'Nihilists' who say 'I believe everything we value is reducible to arbitrary neurochemistry' and '"Ethics" is just addiction to certain biological stimuli'?
 
 If we understand nihilism as a normative project that demands us to take nothing, not even allegedly important values as given or necessary, then there is a strong sense in which my views align with nihilism. There is a lot of fluidity between what people mean by 'nihilism' and I would not want to reject nihilist or proposal of nihilism off-hand. I would take the idea that "ethics is just addiction to certain biological stimuli" as one profoundly contradictory to a more holistic understanding of nihilism. From the example offered, though, we seem to be talking about nihilists in a more focused sense, e.g. how analytic philosophy might understand meta-ethical nihilism and existential nihilism specifically. Taking your examples as characteristic claims that someone who calls themselves a 'nihilist' *could* make, I would strongly resist the reduction of values to biological phenomenon. If we consider the idea that 'everything we value is reducible to arbitrary neurochemistry,' we might notice two things going on here. A reduction of 'value' to our beliefs or attitudes about value is implied. From here, a reduction of 'our beliefs and attitudes [about value]' to neurochemistry is also implied. These are two different dimensions of the concept and as such we have room to resist the reduction in multiple ways. I will focus on just one here.Let's take the idea that our beliefs and attitudes -- at least the ones about value -- are reducible to our neurochemistry. Do we have any convincing reasons to believe this? I would offer that we do not. We are committed to so many specific claims about causality, identity, and neuroscience when we want to make this reduction. I know that c-fiber receptors fire off when I feel the experience of pain, for example, but it hardly follows from this correlative fact that the experience of pain is reducible to 'the pattern of c-fiber receptors firing off.' A discussion like this breaks off into so many issues relevant to metaphysics & philosophy of mind, so I won't pretend to be giving a fully nuanced outlay of it here. Instead I will briefly comment that there is no obvious reason that a reduction of our mental states to our neurochemistry could be successful. The person wanting to make such a reduction would have to outline how that might work. What if our values *are* reducible to our neurochemistry though - should we be so stunned at this result? Here I think the main concern is epistemological. If our beliefs about value are arrangements of matter determined by causality alone, then we might feel suspicious of our reasons to believe in our values -- or what they represent -- in the first place. I would briefly comment that we can evaluate the content of a belief, or any relevant attitude independent of how that belief or attitude came into being. A devil could be feeding me my values but I can still evaluate them and judge them on their own merits. And thereby generate potential reasons to believe in them.
 
+---
+
 **February 7th, 2016**
 
 > Meta-Ethical Nihilism or Non-Cognitivism: Which one is the least implausible of the two?
 
 Meta-ethical nihilism for sure. Error theorists and ethical non-naturalists tend to largely agree about the required metaphysics for morality, in their critiques of subjectivists, non-cognitivists, and naturalists. I don't agree with the skeptical epistemology (usually) employed by nihilists, but I do think it's the '2nd best' theory of morality. The only exception is if the nihilist is convinced on the basis of Mackie's 'argument from queerness,' which I have always had trouble taking seriously. (And if they stress the alleged 'spookiness' of things like supervening moral properties, a priori knowledge, etc. too much in general.) 
+
+---
 
 **January 28th, 2016**
 
