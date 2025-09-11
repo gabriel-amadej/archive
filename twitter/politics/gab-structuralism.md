@@ -1,12 +1,16 @@
-Gab On Structuralism VS Agency (Satire)
+#### Gab On Structuralism VS Agency (Satire)
 
-Posted May 5th, 2025 --- Retrieved August 10th, 2025 
+Posted On May 5th, 2025
 
-Live Link 1 https://x.com/atheopagan/status/1919345676674101404
+Retrieved On August 10th, 2025 
 
-Live Link 2 https://threadreaderapp.com/thread/1919345676674101404.html
+Live Link 1 - https://x.com/atheopagan/status/1919345676674101404
 
-Archive Link https://archive.is/nMxpG
+Live Link 2 - https://threadreaderapp.com/thread/1919345676674101404.html
+
+Archive Link - https://archive.is/nMxpG
+
+---
 
 the radfem, structuralist, neofascist, and overall dullard's theory of the interplay between structure and agency:
 
