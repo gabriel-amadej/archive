@@ -1,12 +1,16 @@
-Fighting Neofascism & The Common Failure Of Leftoids (Plus Advice For Real Anarchists) 
+#### Gab On Fighting Neofascism & The Common Failure Of Leftoids (Plus Advice For Real Anarchists)
 
-Posted 2025-06-07 --- Retrieved 2025-07-20
+Posted 2025-06-07
 
-Live Link 1 https://x.com/atheopagan/status/1931187901884191063
+Retrieved 2025-07-20
 
-Live Link 2 https://threadreaderapp.com/thread/1931187901884191063.html
+Live Link 1 - https://x.com/atheopagan/status/1931187901884191063
 
-Archive Link https://archive.is/ZB9vO
+Live Link 2 - https://threadreaderapp.com/thread/1931187901884191063.html
+
+Archive Link - https://archive.is/ZB9vO
+
+---
 
 there are many ways that leftists — pathetic as contemptible as they are — are neither ready to fight neofascism nor serve the ultimate telos of reality, anarchism, to any coherent degree. aside from the usual problems, such as the autism-coded projection of a private mental 
 state (if you don't have access to knowledge that P obtains about S, you must approve of them); and the reflexive scolding over mere shadows in the darkness (their nervous systems are screaming, and they screech into your ear instead of soothing themselves). 
