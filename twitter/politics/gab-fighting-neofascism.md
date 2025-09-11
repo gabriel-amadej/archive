@@ -1,8 +1,8 @@
 #### Gab On Fighting Neofascism & The Common Failure Of Leftoids (Plus Advice For Real Anarchists)
 
-Posted 2025-06-07
+Posted On June 7th, 2025
 
-Retrieved 2025-07-20
+Retrieved On July 20th, 2025
 
 Live Link 1 - https://x.com/atheopagan/status/1931187901884191063
 
