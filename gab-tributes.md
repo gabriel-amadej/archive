@@ -34,6 +34,8 @@
 
 <img width="202" height="437" alt="with posthuman manifesto playing" src="https://github.com/user-attachments/assets/97e009bb-b7b9-4860-b9dc-8122d9e0fbf1" />
 
+![Atheopagan-Gab-high](https://github.com/user-attachments/assets/de7d490a-d142-4536-83dd-2e28ea174666)
+
 <img width="128" height="128" alt="small gab square avatar" src="https://github.com/user-attachments/assets/e72b452a-8a72-4112-a6b2-20fef4a0446e" />
 
 #### MEMES
