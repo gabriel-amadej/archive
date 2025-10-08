@@ -12,7 +12,9 @@
 
 #### PRODUCTS
 
-[Atheopagan Gab "Brand" Avatar Redbubble Product](https://www.redbubble.com/i/magnet/Atheopagan-Gab-Brand-Avatar-by-Obsquidian/172378310.TBCTK) 
+[Atheopagan Gab "Brand" Avatar (Circle) Redbubble Product](https://www.redbubble.com/i/magnet/Atheopagan-Gab-Brand-Avatar-Circle-by-Obsquidian/172378310.TBCTK) 
+
+[Atheopagan Gab "Brand" Avatar (Square) Redbubble Product](https://www.redbubble.com/i/magnet/Atheopagan-Gab-Brand-Avatar-Square-by-Obsquidian/174817933.TBCTK)
 
 ["Long Live Atheopagan Gab" Redbubble Product](https://www.redbubble.com/i/t-shirt/Long-Live-Atheopagan-Gab-by-Obsquidian/172380209.1YYVU)
 
