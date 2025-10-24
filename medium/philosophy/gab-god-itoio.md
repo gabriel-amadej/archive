@@ -1,5 +1,7 @@
 #### GOD IS THE ONLY IMPOSSIBLE OBJECT
 
+*"The Death of God is achieved by a thousand metaphysical cuts."*
+
 [LIVE LINK](https://medium.com/@AtheopaganHeretic/god-is-the-only-impossible-object-ce3aaf011a4d) 
 
 [ARCHIVE LINK](https://archive.ph/c9LHk)
