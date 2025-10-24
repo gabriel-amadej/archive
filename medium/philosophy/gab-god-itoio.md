@@ -1,12 +1,18 @@
 #### GOD IS THE ONLY IMPOSSIBLE OBJECT
 
-[LIVE LINK](https://medium.com/@AtheopaganHeretic/god-is-the-only-impossible-object-ce3aaf011a4d) --/////-- [ARCHIVE LINK](https://archive.ph/c9LHk)
+[LIVE LINK](https://medium.com/@AtheopaganHeretic/god-is-the-only-impossible-object-ce3aaf011a4d) 
 
-11 Minute Read - November 18th, 2024
+[ARCHIVE LINK](https://archive.ph/c9LHk)
+
+11 Minute Read
+
+November 18th, 2024
 
 ---
 
 When I use a phrase like ‘possible object,’ what comes to mind? Concrete Lewisian possible worlds? Plantinga’s excessive exploits in modal logic? Do you hear Saul Kripke’s damaged vocal cords reverberating in your auditory eye? Do you expect me to define possible object concept #1, as opposed to competing definitions of ‘possible object’ #2–9001? No such courtesy will be granted here. I trust that the reader can take a vibe-based approach to concepts and interrogate ChatGPT about anything that needs clarification. Philosophy articles should not be Stanford Encyclopedia of Philosophy entries.
+
+.
 
 #### I. Mind and Noesis
 
@@ -19,6 +25,8 @@ As a result, epistemological questions about what I am proposing — which is es
 As a consequence, the mind is immaterial. It is a unified substance that bears non-physical information. This is not a philosophy of mind piece, however, so I will not entertain creative ways in which we could render this compatible with physicalism. Refer to the preface and remind yourself of the damaging effects that overly-explaining oneself has on philosophy.
 
 So, we have immaterial minds with the irreducible power to instantiate Forms and concrete universals. What about thoughts that are fleeting, private, ephemeral, and free-floating? These are tropes. Tropes are property-instances. Tropes explain the individuality and ephemeral nature of some of our thoughts, as well as hyper-localized properties in space, such as those familiar to radioactive decay. However, they are not divorced from Forms and concrete universals. Forms and concrete universals explain the generic similarities that exist between tropes. For example, I might think about redness in a very unique and localized way, but it is constituted by generic content that necessarily reflects concrete universals and Forms: redness simpliciter. So, we have a tripartite structure to thought and to reality. Tropes, concrete universals, and abstract Forms. All complimenting each other at differing levels of locality and universality, offering distinctive explanatory roles. Everything is ultimately derivative of the Forms, of course. Forms embody necessary connections and transworld descriptions. Quantifying over possibilities that are not necessarily actualized. For example, ’Donald Trump being a good person’ is an unobtaining, objective state of affairs. It is a possibility, one that we can hold close to our minds, and must in order to be entirely rational agents. Forms find appropriate ontological fitness with such unobtaining state of affairs. By their very nature, they contain and reflect the description of possibility just provided. We do not need excessive theoretical bloat to either ‘naturalize’ or ‘mentalize’ their nature. They simply are.
+
+.
 
 #### II. All Conceivable Objects Exist, Except God
 
@@ -40,6 +48,8 @@ Here is a helpful contrast to illustrate why this sense of God is disenfranchise
 
 One might make an obvious objection here. Surely, there are all sorts of impossible objects, like squared circles and false arithmetic propositions.[5] My answer is two-fold. First, if they are impossible objects, they are not interestingly impossible objects; they are just analytic trivialities that are false by virtue of a logical contradiction. Here, I am using the Fregean conception of analyticity, where analytic statements reflect some fundamental logical law embodied in conventional terms synonym by synonym. This can be seen as rejecting the analytic-synthetic distinction altogether. Where that debate lies does not concern me. Secondly, it is arguable that analytic falsehoods do not even ascend to the realm of possible or impossible objects. They are just nonsense. They are malformed, incomplete objects. They are not even the sensible nonsense home to psychotic rants. To call them impossible is almost misspeaking. God, on the other hand, is wholly coherent, and substantial, and the implication of its existence would be radical. As we have seen, to cognize is to instantiate an object, whether actual or possible. And everything exists as at least a possible object, neatly clustered in a possible world. Everything strictly exists in some sense. As the supreme exception, God does not exist due to the very nature of Forms, concrete universals, and tropes. They cast God into Platonic Hell: a tidy concept for a realm where impossible and non-existent objects reside, or rather do not even reside.
 
+.
+
 #### III. Religious Implications
 
 For some people, such a worldview is bleak. To them, the world has been stripped of truth, beauty, and eternal goodness. The world is a little dimmer, carrying the undertone of hopelessness. We are left with the grey waste, unenchanted by a being of absolute perfection. Such a casting is misguided, however. What we have been touching on is the irreducible nature of normative properties. Perfections are abundant: they are perfect objects residing in imperfect and perfect possible worlds. Plenty of goods exist, all grounded in the irreducible Good. Spontaneous acts of kindness, for example, instantiate the Good. Beauty is ubiquitous: the natural cosmos is filled with wonder and splendour, such as stars and galaxies. As elegantly described by non-natural, aesthetic facts about cosmic properties and relations. Indeed, if this were not the case for normative properties, we would have a swarm of theoretical problems to face.
@@ -47,6 +57,8 @@ For some people, such a worldview is bleak. To them, the world has been stripped
 In the theistic dimension, where God is involved in explaining or encapsulating the Good, we face endless renditions of the Euthyphro Dilemma: is God’s nature or essence good because it is good, or is God’s goodness derivatively conferred by the essence or nature of God? In the first case, we admit secular truthmakers for God’s goodness: the normative standards are independent of it. (Threatening divine aseity once more.) In the second case, we seem to have an impossible reduction, comparable to the is-ought gap haunting ethical naturalism. It would make sense if God’s essence or nature is necessarily good, as a metaphysical fact about itself that reflects the irreducible Good, but if a pre-normative aspect of God’s essence or nature confers and constitutes goodness, we seem to have recreated the unbridgeable is-ought gap. God cannot self-constitute goodness without making a reduction that is naturalistic in spirit. As a result, normative facts are necessarily secular. Our reasons for rejecting this divine reductionism will be parity reasons to reject alternative, secular theories like ethical naturalism. We can note that this recurs our persistent reason for holding that God is the only impossible object: we have vacated, alongside his aseity, even his self-constitutional goodness. The Death of God is achieved by a thousand metaphysical cuts.
 
 All is good and beautiful in virtue of participating in sui generis goodness and beautifulness. Blessed are we, then, that we have no obfuscating middle-man getting in the way of our ability to instantiate and embody the Good, the True, and the Beautiful! We can focus our activities on meditation and prayer to non-deistic entities, reflecting our perfect souls. Accumulating virtue and excellence in our physical lives, absent the distraction of theistic shadow plays. We have a crystalline and absolute focus on what really matters: the activities and struggles that reflect sui generis normative facts, which enjoy their own aseity that is more divine than divinity. The eternal light of the Good shines upon us, mandating that we actualize ourselves and behold our silhouettes reflected upon the cosmos. Dare we defy this ultimate privilege and burden?
+
+.
 
 #### Notes
 
