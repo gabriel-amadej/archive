@@ -10,7 +10,7 @@ April 2nd, 2023
 
 ---
 
-[ne obliviscaris, exul](https://i.ibb.co/B599wQ26/1-j2lep-Deiox-VUp8r-nw-OWTg.webp)
+[ALBUM COVER](https://i.ibb.co/B599wQ26/1-j2lep-Deiox-VUp8r-nw-OWTg.webp)
 
 *“Resonance of petrichor weaves black noise.”*
 
