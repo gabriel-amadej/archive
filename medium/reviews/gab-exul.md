@@ -4,6 +4,10 @@
 
 [ARCHIVE LINK](https://archive.ph/6rTFt)
 
+5 Minute Read
+
+April 2nd, 2023
+
 ---
 
 [ne obliviscaris, exul](https://i.ibb.co/B599wQ26/1-j2lep-Deiox-VUp8r-nw-OWTg.webp)
