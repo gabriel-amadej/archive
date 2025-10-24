@@ -10,9 +10,7 @@ April 2nd, 2023
 
 ---
 
-[ALBUM COVER](https://i.ibb.co/B599wQ26/1-j2lep-Deiox-VUp8r-nw-OWTg.webp)
-
-<img width="561" height="542" alt="ne obliviscaris exul album cover" src="https://i.ibb.co/B599wQ26/1-j2lep-Deiox-VUp8r-nw-OWTg.webp" />
+![ne-obliviscaris-exul](https://github.com/user-attachments/assets/e2ea3f7b-ee7a-4879-a378-99dc0d6d7faf)
 
 *“Resonance of petrichor weaves black noise.”*
 
