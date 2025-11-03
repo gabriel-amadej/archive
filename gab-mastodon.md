@@ -12,15 +12,27 @@ Wikipedia - "Nomenklatura were the key administrative positions in the Soviet Un
 
 innocent gab: Holy fucking christ, I can subtweet the void 
 
+.
+
 innocent gab: Back to basics 
+
+.
 
 innocent gab: Feeling in a distinctly 2013 mood because of this place 
 
+.
+
 innocent gab: I am trained like a dog to only process 140 characters at a time. Find my eyes glazing over 500 character tweets that I shouldn't be glazing over 
 
-@hermeslispegistus@quitter.no: On the federation, we're all feds. 
+.
+
+@ hermeslispegistus @ quitter.no: On the federation, we're all feds. 
+
+.
 
 chenoehart: The ironic content warnings which I am starting to notice seem clever, in part because they frame the conversation around having warnings in the first place as something other than the default rigid/authoritarian/stodgy perception which their critics have given them. They become a fluid part of speech instead of an external artificiality imposed to limit it. Will be interesting to see how they evolve as part of the inherent discourse/culture of this site. 
+
+.
 
 innocent gab: [SPOILER] TWITTER DON'T READ THIS [SPOILER] Listen. The people they are after are the people they depend on. We serve their takes, farm their memes. We guard the content while they sleep. Do not fuck with us. 
 
