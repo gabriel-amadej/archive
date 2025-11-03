@@ -8,13 +8,13 @@ Wikipedia - "Nomenklatura were the key administrative positions in the Soviet Un
 
 ---
 
->>> **April 1st, 2017**
+**April 1st, 2017**
 
-innocent gab: Holy fucking christ, I can subtweet the void 
+> innocent gab: Holy fucking christ, I can subtweet the void 
 
 .
 
-innocent gab: Back to basics 
+> innocent gab: Back to basics 
 
 .
 
