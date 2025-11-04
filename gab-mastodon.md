@@ -8,9 +8,15 @@ Wikipedia - "Nomenklatura were the key administrative positions in the Soviet Un
 
 ---
 
+Posts with replies have been individually archived.
+
 **April 1st, 2017**
 
 > innocent gab: Holy fucking christ, I can subtweet the void 
+
+[LIVE LINK](https://mastodon.social/@Nomenklatura/1408834)
+
+[ARCHIVE LINK](https://archive.ph/TTFAJ)
 
 .
 
@@ -24,13 +30,25 @@ Wikipedia - "Nomenklatura were the key administrative positions in the Soviet Un
 
 > innocent gab: I am trained like a dog to only process 140 characters at a time. Find my eyes glazing over 500 character tweets that I shouldn't be glazing over 
 
+[LIVE LINK](https://mastodon.social/@Nomenklatura/1419793)
+
+[ARCHIVE LINK](https://archive.ph/KkoQn)
+
 .
 
 > @ hermeslispegistus @ quitter.no: On the federation, we're all feds. 
 
+[LIVE LINK](https://mastodon.social/@hermeslispegistus@quitter.no/1408192)
+
+[IMGBB LINK](https://ibb.co/5X6mKqjc)
+
 .
 
 > chenoehart: The ironic content warnings which I am starting to notice seem clever, in part because they frame the conversation around having warnings in the first place as something other than the default rigid/authoritarian/stodgy perception which their critics have given them. They become a fluid part of speech instead of an external artificiality imposed to limit it. Will be interesting to see how they evolve as part of the inherent discourse/culture of this site. 
+
+[LIVE LINK](https://mastodon.social/@chenoehart/1420045) 
+
+[ARCHIVE LINK](https://archive.ph/PkCMD)
 
 .
 
@@ -43,6 +61,10 @@ Wikipedia - "Nomenklatura were the key administrative positions in the Soviet Un
 > innocent gab: mastodon is like a rose-tinted view of twitter where no one argues with each other, everyone is productive in free and equal dialogue - building each other up in enthusiastic reciprocation 
 
 > it's beautiful. and it won't last long. but for a moment, it is what it is 
+
+[LIVE LINK](https://mastodon.social/@Nomenklatura/1647651)
+
+[ARCHIVE LINK](https://archive.ph/lKf6u)
 
 .
 
