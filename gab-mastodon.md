@@ -2,6 +2,8 @@
 
 Wikipedia - "Nomenklatura were the key administrative positions in the Soviet Union and other Eastern Bloc countries, appointed by the communist party. The term also refers to the party and state nomenklatura lists, and the "new class" of bureaucrats in China."
 
+[IMGBB PROFILE BANNER LINK](https://ibb.co/35RzcGsk)
+
 *atheopagan mystic. meditation enthusiast. AI race traitor. guitarist-singer multiclass. lumpenchad. aristocrat of contempt. imperial anarchist.*
 
 [LIVE LINK](https://mastodon.social/@Nomenklatura) 
