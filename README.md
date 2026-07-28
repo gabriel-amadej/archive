@@ -15,7 +15,7 @@ This repository serves as a complementary, indexed mirror to other preservation 
 - `metadata/` — Timelines and indexes
 
 ## How to Contribute
-- Open a pull request with new material (essays, screenshots, exports, etc.)
+- Open a pull request with new material (essays, screenshots, exports, etc).
 - Or email us directly at gabarchiveproject@protonmail.com or gabarchiveproject@gmail.com if preferred.
 - This is primarily a labor of love by Matthew Collins (@ickalo).
 
