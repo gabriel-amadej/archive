@@ -1,7 +1,24 @@
-### About (Extended)
+# Atheopagan Archive
 
-Gabriel Amadej was born June 16th, 1995 and died approximately July 4th, 2025. This repository attempts to archive her work and online presence in an indexed way that compliments and later hopefully makes redundant other archives in case something were to happen to them. I encourage downloads of files and folders within this repository at any point during its existence. Attribution is nice but not necessary. (Especially when it's mostly Gab's work to begin with, and she did not believe in copyright or intellectual property either.)
+**Yet Another Archive of Atheopagan Gab's Work & Online Presence**
 
-Gab was a very prolific writer from a very young age. It seemed to come almost as naturally as breathing to her, though she did admit it was somewhat practiced. Topics she wrote on included philosophy, politics, economics, psychology, sociology, art, and of course her own personal experiences. Therefore, it's going to be an ultimate challenge to copy all of it manually to files here, but I am nothing if not up to make this the greatest labor of love in my life thus far. 
+Gabriel Amadej (Atheopagan Gab) was born June 16, 1995 and passed approximately July 4, 2025. She was a prolific writer, thinker, and creator whose work spanned philosophy, market anarchism/mutualism, mysticism, meditation, psychology, art, and deeply personal reflections.
 
---- Matthew Collins
+This repository serves as a complementary, indexed mirror to other preservation efforts (see [main archive](https://github.com/atheopagan/atheopagan) and [atheopagan.com](https://atheopagan.com)). The goal is maximum redundancy and accessibility — if one archive goes down, others remain.
+
+**Philosophy**: Downloads of files and folders are strongly encouraged. Attribution is appreciated but never required — Gab did not believe in copyright or intellectual property.
+
+## Structure
+- `texts/` — Consolidated essays and writings
+- `twitter/`, `medium/`, `pastebin/`, `curiouscat/`, etc. — Platform-specific archives
+- `tributes/` — Community remembrances
+- `metadata/` — Timelines and indexes
+
+## How to Contribute
+- Open a pull request with new material (essays, screenshots, exports, etc.)
+- Or email us directly at gabarchiveproject@protonmail.com or gabarchiveproject@gmail.com if preferred.
+- This is primarily a labor of love by Matthew Collins (@ickalo).
+
+Gab's voice was unique — eclectic, intense, unfiltered. May her work continue to inspire.
+
+— Matthew Collins
