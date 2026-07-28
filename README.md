@@ -10,7 +10,7 @@ This repository serves as a complementary, indexed mirror to other preservation 
 
 ## Structure
 - `texts/` — Consolidated essays and writings
-- `twitter/`, `medium/`, `pastebin/`, `curiouscat/`, etc. — Platform-specific archives
+- `twitter/`, `medium/`, `pastebin/`, `curiouscat/`, etc — Platform-specific archives
 - `tributes/` — Community remembrances
 - `metadata/` — Timelines and indexes
 
